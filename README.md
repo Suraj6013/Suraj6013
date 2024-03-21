@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **surajwadkar6013@gmail.com**
 
-- 📄 Know about my experiences Resume- [https://drive.google.com/file/d/1qYWBoMTmldS-Cd1nX2fFG91Zzh-GI4f0/view?usp=drive_link](https://drive.google.com/file/d/1qYWBoMTmldS-Cd1nX2fFG91Zzh-GI4f0/view?usp=drive_link)
+- 📄 Know about my experiences, Resume- [https://drive.google.com/file/d/1qYWBoMTmldS-Cd1nX2fFG91Zzh-GI4f0/view?usp=drive_link](https://drive.google.com/file/d/1qYWBoMTmldS-Cd1nX2fFG91Zzh-GI4f0/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
